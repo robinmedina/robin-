@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @robin-
-- 👀 I’m interested in design & music
+- 👋 Hi, I’m Robin
+- 👀 I’m interested in design, dancing, & music
 - 🌱 I’m currently learning audio production with ableton
 - 💞️ I’m looking to collaborate on design projects for bands/ music related 
 - 📫 How to reach me @robindial on instagram
